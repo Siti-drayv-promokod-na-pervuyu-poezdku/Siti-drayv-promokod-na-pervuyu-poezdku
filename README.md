@@ -2,7 +2,7 @@
 
 🚦Промокод Сити Драйв даст вам скидку 100% на первые 2 поездки  
 
-## 🎁 Промокод: `iGgJtx`
+## 🎁 Промокод 👉  `iGgJtx`
 
 [![Промокод Сити Драйв](https://img.shields.io/badge/Промокод_Сити_Драйв-blue?style=for-the-badge)](https://yo.onelink.me/RnAn/r)
 
